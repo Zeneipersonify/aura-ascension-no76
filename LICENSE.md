@@ -1,4 +1,4 @@
-#  
+#  aura ascension Scripts exclusive is the best aura ascension Script, featuring anti-ban and infinite resources. Safe and powerful for all your needs.
 
 
 
